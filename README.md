@@ -1,1 +1,0 @@
-# Student-Performance-Data-Mining-Project---Bruklina-Kymberly-Ana
